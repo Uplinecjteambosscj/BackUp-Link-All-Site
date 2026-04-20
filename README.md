@@ -13,7 +13,7 @@ rk supreme88 backup link⬇️
 https://www.rksupreme88.com/m/index.html
 https://www.rksupreme88.net/m/index.html  
 https://www.rksupreme88.me/m/index.html  
-https://www.rksupreme.me
+https://www.rksupreme88.org/m/index.html
 
 
 rk zenova backup link⬇️
