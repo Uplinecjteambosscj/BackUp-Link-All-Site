@@ -64,12 +64,12 @@ starlight88.co
 
 luckystar88 backup link⬇️
 
-luckystar88.biz
-luckystar88.win
-luckystar88.vip
-luckystar88.pro
+www.luckystar88.biz
+www.luckystar88.win
+www.luckystar88.vip
+www.luckystar88.pro
 
 leo888 backup link⬇️
 
-leo888.co
+www.leo888.co
 www.3822418.com
