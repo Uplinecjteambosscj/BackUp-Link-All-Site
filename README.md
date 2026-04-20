@@ -5,14 +5,14 @@ TEAM BOSS CJ
 rk elite88 backup link⬇️
 
 
-wwe.rkelite.net  
-ww.rkelite.org
+https://www.rkelite88.net  
+https://www.rkelite88.org
 
 rk supreme88 backup link⬇️
 
-www.rksupreme.net  
-www.rksupreme.org  
-www.rksupreme.me
+https://www.rksupreme.net  
+https://www.rksupreme.org  
+https://www.rksupreme.me
 
 
 rk zenova backup link⬇️
